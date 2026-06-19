@@ -204,7 +204,8 @@ Successfully completed the **Google × Kaggle 5-Day AI Agents Intensive Vibe Cod
 ### Connect With Me
 
 - GitHub: https://github.com/drsatyaranjan01-crypto
-- LinkedIn: Add your LinkedIn profile link here
+- LinkedIn: [https://www.linkedin.com/in/satya-ranjan-pattanayak-976189302/](https://www.linkedin.com/in/satya-ranjan-pattanayak-976189302/)
+- 
 
 ---
 
